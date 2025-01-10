@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @SA-9R-OSEA
-- 👀 I’m interested in:art
+- 👀 I’m interested in: art
 - 🌱 I’m currently learning:...
 - 💞️ I’m looking to collaborate on:???
 - 📫 How to reach me:???
-- 😄 Pronouns:any
+- 😄 Pronouns: any
 - ⚡ Fun fact:???
 
 <!---
